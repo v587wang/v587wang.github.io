@@ -1,4 +1,5 @@
-## 欢迎光临 访问[百度]（(https://baidu.com）
+## 欢迎光临 访问[baidu](https://baidu.com/).
+
 
 Y你可以用the [editor on GitHub](https://github.com/v587wang/v587wang.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
 
@@ -26,7 +27,7 @@ Syntax highlighted code block
 [Link](url) and ![Image](src)
 ```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+For more details see [taobao](http://18ka.net/details/37486A23).
 
 ### Jekyll Themes
 
