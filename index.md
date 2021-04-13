@@ -5,17 +5,11 @@ Y你可以用the [editor on GitHub](https://github.com/v587wang/v587wang.github.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### Markdown
+## 常见问题汇总
 
+或者直接访问 [商品](http://18ka.net/details/37486A23).
 
-
-
-
-For more details see [taobao](http://18ka.net/details/37486A23).
-
-### Jekyll Themes
-
-he Jekyll theme you have selected in your [repository settings](https://github.com/v587wang/v587wang.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+扫描二维码
 
 ### Support or Contact
 
