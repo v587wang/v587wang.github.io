@@ -1,6 +1,6 @@
 欧美高分剧情中文完整无删版
 
-访问[扫码](https://github.com/v587wang/v587wang.github.io/blob/main/%E6%89%AB%E7%A0%81%E9%A2%86%E5%8F%96%E4%BC%9A%E5%91%98%202T%E7%A9%BA%E9%97%B4.jpg).
+![扫码](https://github.com/v587wang/v587wang.github.io/blob/main/%E6%89%AB%E7%A0%81%E9%A2%86%E5%8F%96%E4%BC%9A%E5%91%98%202T%E7%A9%BA%E9%97%B4.jpg).
 
 免费百度云24小时限时体验会员 永久增加2T空间  
 截止日   2021年5月31日  
