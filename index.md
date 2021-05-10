@@ -1,16 +1,17 @@
-### 欧美高分剧情
+### 欧美高分剧情电影
+本站仅收录完整无删中文高清版
 
 #### 方法一 百度网盘下载
 #### 1 点击下方电影名称  提取码 ak47
 #### 2 保存到网盘
 #### 3 下载到本地后扫码观看
-[附：免费领取百度网盘体验会员](http://note.youdao.com/s/M3U4cqPJ)
+[附：免费领取百度网盘体验会员](http://note.youdao.com/s/M3U4cqPJ)（会员下载速度快）
 
 #### 方法二 迅雷下载
-#### 下载电影[种子(点我)](https://wwe.lanzous.com/iBZUNozjf3g)  
-#### 扫码解压后使用迅雷下载
+#### 1下载电影[种子(点我)](https://wwe.lanzous.com/iBZUNozjf3g)(个别种子下载速度慢)  
+#### 2扫码解压后使用迅雷下载
 
-#### 唯一客服  QQ 1285155614   代找各类影视资源
+#### 唯一咨询  QQ 1285155614   代找各类影视资源
 
 [M9013罗马的房子](https://pan.baidu.com/s/1pFQGWrmFZFNb88UFD0Yaaw)  
 [M9025卖百科全书的女人](https://pan.baidu.com/s/1M9YJ6pOeW6-oXaGwXr5mtg)  
@@ -79,5 +80,5 @@
 [O9307露西亚的情人](https://pan.baidu.com/s/1L8Nx_ktkVIXD3cccsiDvwQ)  
 
 
-### 唯一客服  QQ 1285155614   代找各类影视资源
+###  唯一咨询QQ 1285155614   代找各类影视资源
 
