@@ -1,10 +1,13 @@
-## 欢迎光临 访问[百度](https://baidu.com/).
+欧美高分剧情中文完整无删版
 
+访问[扫码](https://github.com/v587wang/v587wang.github.io/blob/main/%E6%89%AB%E7%A0%81%E9%A2%86%E5%8F%96%E4%BC%9A%E5%91%98%202T%E7%A9%BA%E9%97%B4.jpg).
 
-
-Y你可以用the [editor on GitHub](https://github.com/v587wang/v587wang.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+免费百度云24小时限时体验会员 永久增加2T空间（2048G）
+截止日   2021年5月31日
+新用户 下载安装百度网盘APP扫码,获得百度网盘会员7天
+老用户使用百度网盘户扫码,获得百度网盘会员1天
+注意 每个账号仅能参与1次活动 
+请确保百度网盘App为最新版本
 
 ## 常见问题汇总
 ## 下载到本地后使用密码解压
@@ -81,7 +84,4 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 或者直接访问 [商品](http://18ka.net/details/37486A23).
 
 ## 联系客服  QQ 1285155614
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+添加微信   有偿查找搜索资源
