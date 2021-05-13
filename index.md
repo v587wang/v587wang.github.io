@@ -8,8 +8,7 @@
 [附：免费领取百度网盘体验会员](http://note.youdao.com/s/M3U4cqPJ)（会员下载速度快）
 
 #### 方法二 迅雷下载
-#### 1下载电影[种子(点我)](https://wwe.lanzoui.com/i5O1Xp3naij
-)(个别种子下载速度慢)  
+#### 1下载电影[种子(点我)](https://wwe.lanzoui.com/i5O1Xp3naij)(个别种子下载速度慢)  
 #### 2扫码解压后使用迅雷下载
 
 #### 唯一咨询  QQ 2587480752
